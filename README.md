@@ -1,2 +1,0 @@
-# nitin-kumar
-myself nitinkumar
